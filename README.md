@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **mauryasudhanshu930@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Cy39MoSvw3keOmCJJDDvDtNQUx0S8U-4/view?usp=share_link](https://drive.google.com/file/d/1Cy39MoSvw3keOmCJJDDvDtNQUx0S8U-4/view?usp=share_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1Cy39MoSvw3keOmCJJDDvDtNQUx0S8U-4/view?usp=share_link](https://drive.google.com/file/d/1syw5HKDN5pw1Dn2IBEdil4JaUm1ZDrir/view?usp=drive_link)
 
 <h3 align="left">Google Play app Link :</h3>
 1. https://play.google.com/store/apps/details?id=com.trishul.wallpaper <br><br>
